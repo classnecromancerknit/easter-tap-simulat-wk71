@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with easter tap simulator rare Scripts, the #1 Script. Includes undetectable and auto-heal for
 
 
 
